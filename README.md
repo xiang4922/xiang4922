@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+國立中山大學
+財務管理學系
+115級
+B114030029
+趙韋翔
